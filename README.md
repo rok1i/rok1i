@@ -1,1 +1,1 @@
-Begginer Project prej prej meje Sead dhe Metit :)
+Begginer Project prej prej meje Seadit dhe Metit :)
