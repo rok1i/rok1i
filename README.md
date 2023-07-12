@@ -1,6 +1,6 @@
 Jom Meti prej Prishtine 
 Shkolla fillore : Dardania
-Shkolla e mesme : Xhecded Doda 
+Shkolla e mesme : Xhevdet Doda 
 University : dropout.
 Mosha : 31 
 Horoskopi : Ujor
